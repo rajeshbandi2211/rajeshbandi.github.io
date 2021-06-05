@@ -1,3 +1,3 @@
-# Naga Sai Manoj Giddaluru
+# Rajesh Bandi
 
-click [here](https://nagasaimanoj.github.io/) to know more
+click [here](https://rajeshbandi.github.io/) to know more
